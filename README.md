@@ -21,4 +21,4 @@ I've worked on 100+ brands, but my favorite remains **[Cake Piece](https://hibay
 
 Find me online during Eastern working hours (EDT) 9 AM to 5 PM — always happy to talk design, branding, or the next big campaign idea.
 
-Got a project in mind or just want to say hi? Grab 30 minutes on my calendar — I'd love to chat! ☕
+Got a project in mind or just want to say hi? [Grab 15 minutes on my calendar](https://calendly.com/hibayaqoob555/15min) — I'd love to chat! ☕
